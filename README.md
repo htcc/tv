@@ -1,5 +1,5 @@
 # tv
-&#8226; 视 频...在线 / 下载：
+&#8226; 视 频.在线/下载：
 <a href="http://25.dns2.us/tv/" target="_blank">网址一</a>
 　<a href="http://ck.otzo.com/mp4/" target="_blank">网址二</a>
 　<a href="http://20.120v.ac/" target="_blank">网址三</a><br />
