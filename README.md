@@ -1,13 +1,13 @@
 &#8226; 视 频：
-<a href="http://my25.cf/tv/" target="_blank">网址一</a>
+<a href="http://nb33.ga/tv/" target="_blank">网址一</a>
 　<a href="http://css22.gq/tv/" target="_blank">网址二</a>
 　<a href="http://qq404.cf/" target="_blank">网址三</a><br />
 &#8226; 在线视频：
-<a href="http://my25.cf/tv/" target="_blank">网址一</a>
+<a href="http://nb33.ga/tv/" target="_blank">网址一</a>
 　<a href="http://css22.gq/tv/" target="_blank">网址二</a>
 　<a href="http://qq404.cf/tv/" target="_blank">网址三</a><br />
 &#8226; mp4视频下载：
-<a href="http://my25.cf/mp4/" target="_blank">网址一</a>
+<a href="http://nb33.ga/mp4/" target="_blank">网址一</a>
 　<a href="http://css22.gq/mp4/" target="_blank">网址二</a>
 　<a href="http://qq404.cf/mp4/" target="_blank">网址三</a><br />
 &#8226; 視 頻 小 站：
